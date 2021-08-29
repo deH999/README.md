@@ -1,5 +1,5 @@
 
-![super-kid](file:///C:/Users/User/Desktop/beat/1373634469_1620808838.gif)
+![super-kid](https://xakep.ru/wp-content/uploads/2015/06/geek-534947.gif)
 
 👋 Hi, I’m @deH999
 
